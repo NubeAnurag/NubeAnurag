@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...computer sciences
 - 🌱 I’m currently learning ...java,SQL
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...anuragmandal@gmail.com or 9318475981
+- 📫 How to reach me ...anuragmandal2003@gmail.com or 9318475981
 - 😄 Pronouns: ...HE, HIM,Anurag
 - ⚡ Fun fact: ...
 
